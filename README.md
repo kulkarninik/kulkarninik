@@ -11,7 +11,7 @@
 - **Learning & Sharing**: Constantly exploring new technologies and sharing knowledge with others.
 
 ## 🌍 Let's Connect
-- 💼 LinkedIn: www.linkedin.com/in/nikita-kulkarni-875862171
+- 💼 LinkedIn: www.linkedin.com/in/nikitakulkarni32
 - 📧 Email: kulkarninikita32@gmail.com
 
 ## 🎨 Beyond Work
